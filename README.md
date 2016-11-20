@@ -1,2 +1,0 @@
-# shadyrama
-Just for Torrenting
